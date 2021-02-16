@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RealJanaash. I have another account, but it will never be really be used after a while.
+- 👀 I’m interested in making code, and watching my fav youtubers.
+- 🌱 I’m currently learning code, and go to school.
+- 📫 How to reach me... you can not. ;)
